@@ -23,6 +23,7 @@ Mustardseed (Michele Schultz)
 Earl William Westmoreland (Roy Cox)
 
 ![2015(Oct25)JacquelineChenault](https://user-images.githubusercontent.com/103908759/168356715-5009af72-940a-40f2-8ba3-79963d8869bf.jpg)
+
 *Opening Gate Show- October 25, 2015*    
  Lady Elizabeth Howard, Duchess of Norfolk (Jacqueline Chenault)
 
