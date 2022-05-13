@@ -5,7 +5,7 @@ View photographs of the Maryland Renaissance Festival, taken by Keith Heffner
 *Seasons 2015-2021* (excluding 2020 AD, **The Plague Year**)
 
 
-#**2015**
+**2015**
 ![2015(Sept19)OpeningGateShow](https://user-images.githubusercontent.com/103908759/168346629-e114f9d5-2cbe-400c-b01c-2b127e35896a.jpg)
 *Opening Gate Show- September 19, 2015* 
 ![2015(Sept20)OpeningGateShow](https://user-images.githubusercontent.com/103908759/168346663-c59be65b-afb9-444b-9381-628369e3110e.jpg)
