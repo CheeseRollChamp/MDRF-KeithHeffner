@@ -1,8 +1,8 @@
-## Welcome to GitHub Pages
+## Prepare theyself for merriment!
 
-You can use the [editor on GitHub](https://github.com/CheeseRollChamp/MDRF-KeithHeffner/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+View photographs of the Maryland Renaissance Festival, taken by Keith Heffner
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+*Seasons 2015-2021* (excluding 2020 AD, **The Plague Year**)
 
 ### Markdown
 
